@@ -105,4 +105,4 @@ The unbelievable inverse of aAUTOMATa, is that additional concepts exist, awaiti
 
 So why aDistructicUs?
 
-Perhaps, because we have no other concept - within VIEWZ of a SOLO_FOCUS.
+> Perhaps, because we have NO_OTHER_CONCEPT.
