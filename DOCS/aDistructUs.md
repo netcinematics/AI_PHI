@@ -43,3 +43,19 @@ Then on a daily basis, the gooey oozing concepts - extend from_mind_to_mind, as 
 
 Beneath the Social Tentacle, lurks highly contagious bio tentacles, emotional_tentacles, and generational_tentacles. But those are still unexplored, and to be detailed
 elsewhere.
+
+---
+
+## aSelfDistructicUs
+
+Within the Social_Tentacles, is where the strange ACTZ of aSelfDistructivUs arise.
+
+Both as a group and individually, sometimes - a carnal impulse arises to discourage the co-habitation - of humanity - on this otherwise lonely and cold speck of dust in space.
+
+> WHY???
+
+### STRANGE_NATURE 
+
+> What is this default of strange_nature that dinosaurs eat dinosaurs, and animals eat animals?
+
+And why the default concept, within the carnal human mind - to discourage the co-habitant human?
