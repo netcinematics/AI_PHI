@@ -11,6 +11,7 @@ The following is a Thought Experiment, to allow us to safely examine details of 
 ## Distructopuss
 
 The dark foreboding menace, can be softened, by mythology. In the following Thought Experiment, we safely explore strange details of aDARKa, and ways it is a discouragement to all existence.
+With the fictional Distructopuss.
 
 ### Thought Experiment 
 
@@ -26,6 +27,10 @@ A key aspect of this apparent cosmic tyrant - is the nature of its TENTACLES. Th
 
 ### Through time and size.
 
-Another key point, is that these tentacles appear to transcend dimensions of scale.
+But there is more. The tentacles ooze through TIME at different speeds.
+
+Think of a galactic tentacle, pulling two galaxies to collide. Or a planetary tentacle, crushing a planet with forces like heat, cold and poison.
+
+###
 
 
