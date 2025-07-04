@@ -30,12 +30,14 @@ Innovative topics from AI transformation of LINGUISTICS and the human mind.
 
 by envolveren 
 
+---
+
 ### Most important words ever?
 We take language for granted.
 
-> Twists in language, limit concept evaluation - and clarity of language - transcend human intelligence.
+> Twists in language, limit concept evaluation. And clarification of language - transcends current human intelligence.
 
-Historically, we could not evaluate max complexity of a situation. We had to simplify, to save time - and move forward.
+Historically, we could not evaluate max complexity of a situation. We had to simplify concepts, to save time - and move forward. AI changes this.
 
 Such simplifications of concept are detectable in TEXT as SOCIAL_PHRASES.
 
