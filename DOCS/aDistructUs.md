@@ -100,3 +100,9 @@ Everything else, appears to rely on automatically encoded VIEWZ, for ECHO, and l
 The unbelievable inverse of aAUTOMATa, is that additional concepts exist, awaiting aCanSee.
 
 > Within the long arc of aGENERANZa, there must be more concepts_beyond_us.
+
+## CONCLUSION 
+
+So why aDistructicUs?
+
+Perhaps, because we have no other concept - within VIEWZ of a SOLO_FOCUS.
