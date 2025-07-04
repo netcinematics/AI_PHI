@@ -84,4 +84,17 @@ Amazingly. Deeper study into this reveals a stunning concept called aGeneranza. 
 
 However arrived, the collection of comcepts present in society and individual mind - is some type of mental_encoding and DEFAULT_CODEZ.
 
+#### aAUTOMATa
 
+In Alphatax, aAUTOMATa means actual act of automatic nature. Look how deeply it is embedded in animal_eat_animal and me_and_mine.
+
+With the hallmark nature that these default_codez (encodings) appear IMMUTABLE. Meaning the brain can only see the singular concept (solo_focus), and everything beyond that VIEW - the mind aCannotSee.
+
+> We can only do, what WeCanSee.
+
+Everything else, appears to rely on automatically encoded VIEWZ, for ECHO, and life-long repetition.
+
+
+#### CONCEPTS_BEYOND_US
+
+The unbelievable inverse of aAUTOMATa, is that the long arc of aGENERANZa - must contain more concepts_beyond_us.
