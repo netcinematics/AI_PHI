@@ -13,7 +13,7 @@ The following is a Thought Experiment, to allow us to safely examine details of 
 The dark foreboding menace, can be softened, by mythology. In the following Thought Experiment, we safely explore strange details of aDARKa, and ways it is a discouragement to all existence.
 With the fictional Distructopuss.
 
-### Thought Experiment 
+#### Thought Experiment 
 
 > The slow dismantling of everything, through time - is the Distructopuss.
 
@@ -21,7 +21,7 @@ Encompass all discouragements to your existence, as if it were an cosmic black o
 
 Exact_Opposite of growth from light, lurks this distructive force - still eluding examination.
 
-### Tentacle_Dissolvant
+#### Tentacle_Dissolvant
 
 A key aspect of this apparent cosmic tyrant - is the nature of its TENTACLES. They appear to dissolve the atoms of everything they touch.
 
@@ -54,8 +54,34 @@ Both as a group and individually, sometimes - a carnal impulse arises to discour
 
 > WHY???
 
-### STRANGE_NATURE 
+#### STRANGE_NATURE 
 
 > What is this default of strange_nature that dinosaurs eat dinosaurs, and animals eat animals?
 
 And why the default concept, within the carnal human mind - to discourage the co-habitant human?
+
+> Look at the default concept
+
+Is there no alternative concept?
+
+THAT is the goal of these EXPERIMENTS. From here many valuable VIEWZ begin to GENERATE.
+
+#### Same_Struggle
+
+> In a struggle for scarcity, BOTH minds appear locked in a concept - ME_and_MINE.
+
+Strangely. If we all have the same problem, why can we not all peacefully resolve it? 
+
+> We sometimes prefer escalation to annihilation, over collaboration - toward DOUBLE_BETTER?
+
+WHY???
+
+#### DEFAULT_CODEZ
+
+Amazingly. Deeper study into this reveals a stunning concept called aGeneranza. The theory that our codez extend from the default carnal state (aCARNa). 
+
+> Somehow concepts transform (non-visably), through time, generationally, from animal_eat_animal to me_and_mine.
+
+However arrived, the collection of comcepts present in society and individual mind - is some type of mental_encoding and DEFAULT_CODEZ.
+
+
