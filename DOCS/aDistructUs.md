@@ -25,12 +25,21 @@ Exact_Opposite of growth from light, lurks this distructive force - still eludin
 
 A key aspect of this apparent cosmic tyrant - is the nature of its TENTACLES. They appear to dissolve the atoms of everything they touch.
 
-### Through time and size.
+#### Through time and size.
 
 But there is more. The tentacles ooze through TIME at different speeds.
 
-Think of a galactic tentacle, pulling two galaxies to collide. Or a planetary tentacle, crushing a planet with forces like heat, cold and poison.
+Think of a galactic tentacles, pulling two galaxies to collide. Or a planetary tentacle, crushing a planet with forces like heat, cold and poison.
 
-###
+#### Social_Tentacles
 
+Amazingly, the force decends to Earth as Terrestrial_Tentacles. 
 
+Across our eons of evolution. The tentacles represent the limit of our cognitive VIEWZ, and the impetus of our puzzling self-distruction. 
+
+Then on a daily basis, the gooey oozing concepts - extend from_mind_to_mind, as Social_Tentacle
+
+#### BIO_Tentacle
+
+Beneath the Social Tentacle, lurks highly contagious bio tentacles, emotional_tentacles, and generational_tentacles. But those are still unexplored, and to be detailed
+elsewhere.
