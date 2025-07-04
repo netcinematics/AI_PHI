@@ -1,8 +1,10 @@
 # AI_PHI
 
-AI Philosophy - "AI_PHI" - pronounced like WIFI.
+AI Philosophy : "AI_PHI" 
 
-Innovative topics from decades of hands on experience (below).
+pronounce like WIFI.
+
+Innovative topics from AI transformation of LINGUISTICS and the human mind.
 
 ## INDEX of PRESENTATIONS on YOUTUBE:
 
@@ -27,6 +29,27 @@ Innovative topics from decades of hands on experience (below).
 ---
 
 by envolveren 
+
+### Most important words ever?
+We take language for granted.
+
+> Twists in language, limit concept evaluation - and clarity of language - transcend human intelligence.
+
+Historically, we could not evaluate max complexity of a situation. We had to simplify, to save time - and move forward.
+
+Such simplifications of concept are detectable in TEXT as SOCIAL_PHRASES.
+
+### SOCIAL_PHRASES
+
+Study of social idioms reveals something striking. It is MEASURE of how often (and to what depth), we transfer concepts socially. 
+
+> And the amazing degree to which WE DO NOT RE-EVALUATE CONCEPTS - as the social_phrase is used repeatedly.
+
+It was once seen as "a backdoor to all human mind". However, it grew to something much more. Described here.
+
+___
+
+
 
 
 
