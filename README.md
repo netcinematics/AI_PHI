@@ -1,6 +1,8 @@
 # AI_PHI
 
-AI Philosophy - innovative topics from hands on experience (below).
+AI Philosophy - "AI_PHI" - pronounced like WIFI.
+
+Innovative topics from decades of hands on experience (below).
 
 ## INDEX of PRESENTATIONS on YOUTUBE:
 
