@@ -97,4 +97,6 @@ Everything else, appears to rely on automatically encoded VIEWZ, for ECHO, and l
 
 #### CONCEPTS_BEYOND_US
 
-The unbelievable inverse of aAUTOMATa, is that the long arc of aGENERANZa - must contain more concepts_beyond_us.
+The unbelievable inverse of aAUTOMATa, is that additional concepts exist, awaiting aCanSee.
+
+> Within the long arc of aGENERANZa, there must be more concepts_beyond_us.
