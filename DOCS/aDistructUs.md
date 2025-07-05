@@ -76,9 +76,11 @@ Strangely. If we all have the same problem, why can we not all peacefully resolv
 
 WHY???
 
+The tentacle encroaches in the night, somehow, like actual_false_concepts move from_mind_to_mind.
+
 #### DEFAULT_CODEZ
 
-Amazingly. Deeper study into this reveals a stunning concept called aGeneranza. The theory that our codez extend from the default carnal state (aCARNa). 
+Amazingly. Deeper study into this reveals a concept called aGeneranza. The view that encoded concepts extend from the default carnal state (aCARNa) until now. 
 
 > Somehow concepts transform (non-visably), through time, generationally, from animal_eat_animal to me_and_mine.
 
@@ -106,3 +108,9 @@ The unbelievable inverse of aAUTOMATa, is that additional concepts exist, awaiti
 So why aDistructicUs?
 
 > Perhaps, because we have NO_OTHER_CONCEPT.
+
+---
+
+NO_OTHER_CONCEPT
+
+---
