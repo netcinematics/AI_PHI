@@ -1,6 +1,4 @@
-# AI_PHI
-
-~ AI Philosophy ~
+# AI_PHILOSOPHY (AI_PHI)
 
 "AI_PHI", pronounced like WIFI.
 
