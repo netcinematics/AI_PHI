@@ -5,7 +5,7 @@
 > Innovative topics from 
 AI LINGUISTICS and the human mind.
 
-## INDEX of PRESENTATIONS on YOUTUBE:
+## INDEX of YOUTUBE (slides):
 
 1. Most IMPORTANT words ever?
 
