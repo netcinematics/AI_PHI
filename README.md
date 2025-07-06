@@ -1,4 +1,4 @@
-# AI_PHILOSOPHY (AI_PHI)
+# AI_PHILOSOPHY
 
 "AI_PHI", pronounced like WIFI.
 
