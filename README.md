@@ -4,7 +4,8 @@
 
 "AI_PHI", pronounced like WIFI.
 
-Innovative topics from AI transformation of LINGUISTICS and the human mind.
+> Innovative topics from 
+AI LINGUISTICS and the human mind.
 
 ## INDEX of PRESENTATIONS on YOUTUBE:
 
