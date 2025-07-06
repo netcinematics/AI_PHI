@@ -32,6 +32,13 @@ by envolveren
 
 ---
 
+## LINKS to AI_PHI Experiments
+
+- Most important words ever?
+- Why so unable to change?
+
+## LINKS to AI_PHI Library 
+
 ### Most important words ever?
 We take language for granted.
 
