@@ -1,5 +1,6 @@
 # aDistructicUs
 
+opposite aSYBIOZa
 Within Strange_Nature, exists many phenomena we have yet to decipher.
 
 A prime_example is the oldest of all. The darkness from which we emerge. And against the long arc of carnal experience. We somehow exist, here and now, despite the total discouragement, chaos, distortion and destruction herein.
