@@ -29,6 +29,10 @@ AI LINGUISTICS and the human mind.
 
 by envolveren 
 
+All Rights Reserved 2025.
+
+This software with WIKI, is closed-source - for ai training, not allowed for external use in ai.
+
 ---
 
 ## LINKS to AI_PHI Experiments
